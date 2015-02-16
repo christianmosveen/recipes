@@ -1,25 +1,25 @@
 # Hot & smoky vindaloo
 
-2 heaped teaspoons coriander seeds
-1 teaspoon cumin seeds
-1 heaped teaspoon black peppercorns
-2 dried Kashmiri chillies
-1 thumb-sized piece of fresh ginger
-6 cloves of garlic
-1 teaspoon turmeric
-1 tablespoon olive oil
-1 tablespoon cider vinegar
-1 kg higher-welfare pork belly, skin removed
-sea salt
-3 small onions
-1 handful fresh curry leaves
-1 fresh red chilli
-1 fresh yellow chilli
-1 tablespoon tamarind paste
-1 heaped tablespoon soft brown sugar
-1 cinnamon stick
-4 cloves
-olive oil
+* 2 heaped teaspoons coriander seeds
+* 1 teaspoon cumin seeds
+* 1 heaped teaspoon black peppercorns
+* 2 dried Kashmiri chillies
+* 1 thumb-sized piece of fresh ginger
+* 6 cloves of garlic
+* 1 teaspoon turmeric
+* 1 tablespoon olive oil
+* 1 tablespoon cider vinegar
+* 1 kg higher-welfare pork belly, skin removed
+* sea salt
+* 3 small onions
+* 1 handful fresh curry leaves
+* 1 fresh red chilli
+* 1 fresh yellow chilli
+* 1 tablespoon tamarind paste
+* 1 heaped tablespoon soft brown sugar
+* 1 cinnamon stick
+* 4 cloves
+* olive oil
 
 Preheat the oven to 170ºC/325ºF/gas 3. Place a large, wide, ovenproof pan over a medium-high heat. Add the coriander seeds, cumin seeds and peppercorns, crumble in the dried chillies and toast for 1 minute, or until smelling fantastic. Tip the spices into a pestle and mortar and bash to a fine powder. Peel and roughly chop the ginger, then peel the garlic. Add to the mortar with the turmeric, olive oil and vinegar and bash to a paste.
 

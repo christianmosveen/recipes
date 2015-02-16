@@ -1,27 +1,27 @@
 # Rogan josh
 
-3 inch piece fresh ginger, peeled and grated
-8 cloves garlic, chopped
-1 teaspoon turmeric
-4 tablespoons natural yoghurt
-1 teaspoon crushed black peppercorns
-1 kg quality lamb shoulder, cut into big cubes
-5 medium-sized red onions, halved
-2 red peppers, halved and deseeded
-4 fresh red chillies, deseeded
-1 tablespoon green cardamom pods
-½ tablespoon whole cloves
-1 stick cinnamon
-2 tablespoons coriander seeds
-4 small dried red chillies
-1 splash vegetable oil
-2 teaspoons paprika
-600 g tinned chopped tomatoes
-½ tablespoon salt
-sliced chilli, to serve
-coconut shavings, to serve
-chopped coriander, to serve
-chopped mint, to serve
+* 3 inch piece fresh ginger, peeled and grated
+* 8 cloves garlic, chopped
+* 1 teaspoon turmeric
+* 4 tablespoons natural yoghurt
+* 1 teaspoon crushed black peppercorns
+* 1 kg quality lamb shoulder, cut into big cubes
+* 5 medium-sized red onions, halved
+* 2 red peppers, halved and deseeded
+* 4 fresh red chillies, deseeded
+* 1 tablespoon green cardamom pods
+* ½ tablespoon whole cloves
+* 1 stick cinnamon
+* 2 tablespoons coriander seeds
+* 4 small dried red chillies
+* 1 splash vegetable oil
+* 2 teaspoons paprika
+* 600 g tinned chopped tomatoes
+* ½ tablespoon salt
+* sliced chilli, to serve
+* coconut shavings, to serve
+* chopped coriander, to serve
+* chopped mint, to serve
 
 Mix your ginger and garlic together. Put them in a bowl that's big enough to fit all the cubed lamb in. Add the turmeric, yoghurt and black pepper to the bowl and mix together. Tip the lamb into the bowl and stir it around until it's well coated with the yoghurt and spices. Cover and leave overnight in the fridge to marinate.
 

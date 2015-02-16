@@ -1,20 +1,20 @@
 # Lamb korma
 
-8 quality lamb cutlets, French-trimmed
-3 tablespoons cumin seeds, lightly toasted and ground
-1 thumb-sized piece ginger, grated
-3 tablespoons olive oil
-150 g blanched almonds
-½ teaspoon black pepper
-½ teaspoon cloves
-½ stick cinnamon
-½ teaspoon cardamom
-1 teaspoon butter
-2 cloves garlic, finely sliced
-1 teaspoon ground turmeric
-1 red onion, finely sliced
-200 g tinned chopped tomatoes
-250 ml fat-free natural yoghurt
+* 8 quality lamb cutlets, French-trimmed
+* 3 tablespoons cumin seeds, lightly toasted and ground
+* 1 thumb-sized piece ginger, grated
+* 3 tablespoons olive oil
+* 150 g blanched almonds
+* ½ teaspoon black pepper
+* ½ teaspoon cloves
+* ½ stick cinnamon
+* ½ teaspoon cardamom
+* 1 teaspoon butter
+* 2 cloves garlic, finely sliced
+* 1 teaspoon ground turmeric
+* 1 red onion, finely sliced
+* 200 g tinned chopped tomatoes
+* 250 ml fat-free natural yoghurt
 
 Lay the chops out, and massage in the ground cumin and the grated ginger and about 3 tablespoons of olive oil. Then leave to marinate for at least an hour, but preferably overnight.
 

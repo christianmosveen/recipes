@@ -1,28 +1,28 @@
 # Dosa
 
-2 baking potatoes, scrubbed
-2 sweet potatoes, scrubbed
-olive oil
-1 dried red chilli, finely sliced
-1 fresh red chilli, finely sliced
-1 cm piece fresh ginger, peeled and finely sliced
-1½ teaspoons mustard seeds
-1 teaspoon turmeric
-sea salt
-freshly ground black pepper
-1 lime, halved
-4 spring onions, trimmed and finely sliced
-a few sprigs coriander, roughly chopped
-minted yoghurt, to serve
-Indian chutney, to serve
-lime wedges, to serve
+* 2 baking potatoes, scrubbed
+* 2 sweet potatoes, scrubbed
+* olive oil
+* 1 dried red chilli, finely sliced
+* 1 fresh red chilli, finely sliced
+* 1 cm piece fresh ginger, peeled and finely sliced
+* 1½ teaspoons mustard seeds
+* 1 teaspoon turmeric
+* sea salt
+* freshly ground black pepper
+* 1 lime, halved
+* 4 spring onions, trimmed and finely sliced
+* a few sprigs coriander, roughly chopped
+* minted yoghurt, to serve
+* Indian chutney, to serve
+* lime wedges, to serve
 
 For the dosa batter
-1 cup gram (chickpea) flour
-1 cup flour
-½ teaspoon bicarbonate of soda
-2½ teaspoons mustard seeds
-olive oil
+* 1 cup gram (chickpea) flour
+* 1 cup flour
+* ½ teaspoon bicarbonate of soda
+* 2½ teaspoons mustard seeds
+* olive oil
 
 Prick the potatoes and sweet potatoes all over with a knife and bake until soft, either in the coals of your fire or barbecue or wrapped in foil in the oven at 200°C/400°F/gas 6 for around 1 hour, or until soft and cooked through. Cut open on a board and scoop out the flesh into a bowl. Roughly mash then set aside while you cook your spice mixture.
 
